@@ -8,7 +8,7 @@ Honours).
 ## Professional Experience
 - September 2011 - July 2017: NTPC Ltd, A Govt. of India Maharatna Undertaking: As Deputy Manager entrusted with the
 responsibility of optimizing the efficiency parameters of 210/500MW Sub-Critical Thermal Power Plant.
-- July 2010 - May 2011: Jindal Steel & Power Ltd.: Graduate Engineer Trainee in the Power Plant division.
+- July 2010 - May 2011: Jindal Steel & Power Ltd.: Graduate Engineer Trainee in the Operations & Maintenance division.
 
 ## Research Experience
 - Feb 2024 - Present: Postdoctoral Researcher, Centre for Disruptive Photonic Technologies, NTU Singapore.
