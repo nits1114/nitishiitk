@@ -60,3 +60,6 @@ NTPC Sipat).
 
 ## Publications
 - Please refer to my Google Scholar Profile: https://scholar.google.com/citations?user=ZNU3u0wAAAAJ&hl=en&inst=8669986779262753491&oi=ao
+
+## Alternate Webpage (BITS Pilani)
+https://www.bits-pilani.ac.in/hyderabad/dr-nitish-kumar-gupta
